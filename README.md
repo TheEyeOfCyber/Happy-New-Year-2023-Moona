@@ -8,9 +8,8 @@ You are my life, I wish this.<br/>
 This New Year bring us all happiness together<br/>
 that we remain together forever for life.<br/>
 It would be a bliss.<br/>
+This Happy New Year, for us, will be like this.<br/>
 </b></p>
-
-This Happy New Year, for us, will be like this. 
 https://theeyeofcyber.github.io/HappyNewYear2021ToU/
 <h3>ABOUT ME <a href="https://github.com/TheEyeOfCyber/" target="_blank">Humayun ALi Khan</a></h3>
 <p><b>#Author :#Humayun Ali Khan #Mammona Aslam</p></b>
