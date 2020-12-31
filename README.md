@@ -11,4 +11,4 @@ https://theeyeofcyber.github.io/HappyNewYear2021ToU/
    <p><b>Fb Group: https://www.facebook.com/groups/theeyeofcyberbuckeyesecurtiy/</p></b> 
 <img src="https://github.com/TheEyeOfCyber/HappyNewYear2021ToU/blob/main/20201231_161952_0000.png" style="max-width:100%;">
 </p></b>
-Made with love by <a href="https://github.com/TheEyeOfCyber/" target="_blank">Hina Baji</a>
+
