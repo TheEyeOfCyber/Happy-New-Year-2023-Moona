@@ -15,7 +15,7 @@ It would be a bliss.🥰<br/>
 🌌This Happy New Year, for us, will be like this.😘<br/>
 </b></p>
 <p>CLICK THE LINK BELOW👇</p>
-https://theeyeofcyber.github.io/HappyNewYear2021ToU/
+https://theeyeofcyber.github.io/HappyNewYear2021ToU/👈
 <h3>ABOUT ME <a href="https://github.com/TheEyeOfCyber/" target="_blank">Humayun ALi Khan</a></h3>
 <p><b>#Author :#Humayun Ali Khan #Mammona Aslam</p></b>
 <p><b>
